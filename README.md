@@ -10,4 +10,5 @@ Majalaya - Karawang - Jawa Barat - Indonesia
 
 #### Hobi
 
+Olahraga
 Makan
