@@ -7,3 +7,7 @@ Hello gaess, perkenalkan saya Toto abdulpatah biasa dipanggil toto saya mahasisw
 #### DOMISILI
 
 Majalaya - Karawang - Jawa Barat - Indonesia
+
+#### Hobi
+
+Makan
